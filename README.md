@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JPongrac
 - 👀 I’m interested in the interface between art & science
 - 🌱 I’m currently learning AI & Cloud Computing Applications
-- 📫 How to reach me 
+- 📫 How to reach me www.linkedin.com/in/julie-pongrac-projects
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: I'm a Master coder in Knitting!
 
